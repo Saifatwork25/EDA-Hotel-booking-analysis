@@ -43,5 +43,5 @@ SUGGESTIONS
 ~Hotels can promote their business online via social media channels and hiring influencers as most of the Bookings are coming from online portals.
 ~Repeated guests should be given a priority pass or made the member of some of priority group with perks , to retain them. Since they are mostly in Q1 which is winters , they can be given complementary hot drinks.
 ~City Hotel should give concessions for people staying for more than 6 days.
-~Resort hotels can give complimentary gift and services (like free cabs,etc) for boosting the short stays.
+~Resort hotels can give complimentary gift and services (like free cabs,etc) for boosting the short stays
 
